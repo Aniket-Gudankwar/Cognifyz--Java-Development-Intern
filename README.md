@@ -1,1 +1,0 @@
-# Cognifyz:-Java-Development-Intern
